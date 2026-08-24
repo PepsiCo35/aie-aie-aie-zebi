@@ -4,3 +4,5 @@ sxcnqsnjld,zqxd^s
 dznqjkndlks;ùsd
 fheoqkxdah
 a%d,
+if regle n():
+nan mais vraiment le poulet la
